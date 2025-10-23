@@ -1,2 +1,2 @@
 # THESIS
-fr5f5f5cf5c5f5f5cf5
+This is Eve's thesis about Urbanisation factors in regards to pelepasan karbon
